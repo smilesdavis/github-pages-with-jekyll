@@ -1,4 +1,4 @@
-# Subscribe to Have a Great Day 💌
+# Index H1
 
 ## Why subscribe?
 Most great days begin with great mornings. So start the day right, with a pleasant message at the top of your inbox!
